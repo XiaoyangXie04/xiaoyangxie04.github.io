@@ -1,3 +1,2 @@
-- 校级一等奖学金, 2022.  
+2025年度中国青年科技创新“揭榜挂帅”擂台赛“人工智能领域”三等奖.
 
-- Outstanding Graduation Thesis, XXX University, 2023. 
